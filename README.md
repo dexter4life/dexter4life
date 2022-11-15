@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @dexter4life
 - 👀 I’m interested in Programming
-- 📫 How to reach me dexter4life@gmail.com
